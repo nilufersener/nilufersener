@@ -1,0 +1,2 @@
+jnpoıhnioıhnmklmniıob.hkç
+kğpkpğmkp,m
